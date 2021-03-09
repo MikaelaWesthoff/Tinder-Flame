@@ -1,4 +1,4 @@
-# Tinder-Flame
+# Means and Motive
 Causes of Mass Killing Working Paper
 
 Paper Presented at:
